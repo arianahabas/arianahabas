@@ -7,4 +7,4 @@
 
  📫 How to reach me **arianahabas@gmail.com**
 
- ⚡ Fun fact **My last meal on earth would freshly made sourdough bread. Toasted. With butter.**
+ ⚡ Fun fact **I secretly want to be a spy and love cool gadgets and fun technology**
