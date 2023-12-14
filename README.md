@@ -3,7 +3,7 @@
 
  🔥 I’m currently working on **a Strength & Conditioning App**
 
- 💻 I’m currently learning **node.js**
+ 💻 I’m currently learning **next.js**
 
  📫 How to reach me **arianahabas@gmail.com**
 
